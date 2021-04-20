@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @gabryluvsu
+- 👀 I’m interested in pcs
+- 🌱 I’m currently learning Languages
